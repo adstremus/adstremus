@@ -1,11 +1,6 @@
 <div align="center">
 
 </p>
-— 󠀠󠀠☆   ࣪ ⸝⸝ all the while
-
-![](https://ph.pinterest.com/pin/408490628717254124/)
-
-i'll await my armored fate with a smile 𓂃 ''
 
 </p>
 
