@@ -4,4 +4,4 @@
 
 </p>
 
-![](https://komarev.com/ghpvc/?username=adstremus&label=―+camp+sza+:&color=bc5643&style=flat)
+![](https://komarev.com/ghpvc/?username=adstremus&label=―+camp+sza+:&color=8bab9b&style=flat)
